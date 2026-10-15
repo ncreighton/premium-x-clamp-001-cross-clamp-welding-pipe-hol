@@ -1,0 +1,2 @@
+# premium-x-clamp-001-cross-clamp-welding-pipe-hol
+Tired of losing track of your cross clamp angles, pipe measurements, and welding settings across scattered notes and sticky notes? This Notion template organizes every detail of your pipe hold and fabrication projects in one central hub.  The Cross Clamp Welding &amp; Pipe Hold Craft Hub eliminates the chaos of managing multiple projects by providing a
